@@ -6,6 +6,10 @@ Cruel samples that should not be used but are free to be done so #music #lala #c
 
 Please improve. I cannot. Here is what you find here
 
+### [Kiss 2 build a dream on failed tribute](https://soundcloud.com/schnoddelbotz/kiss-2-build-a-dream-on-failed)
+Files found here: [Kiss2Build](./Kiss2Build/)
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1188697855&color=%23ff5500&auto_play=true&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/schnoddelbotz" title="schnoddelbotz" target="_blank" style="color: #cccccc; text-decoration: none;">schnoddelbotz</a> · <a href="https://soundcloud.com/schnoddelbotz/kiss-2-build-a-dream-on-failed" title="Kiss 2 build a dream on failed tribute" target="_blank" style="color: #cccccc; text-decoration: none;">Kiss 2 build a dream on failed tribute</a></div>
+
 ### [Dans ma Rüde GarageBand Project 1 (FR @HELIUM) Langstrasse HD ZAZ Piaf Kopie - HD 1080p](https://vimeo.com/662353489)
 <iframe src="https://player.vimeo.com/video/662353489?h=0f6642a1f3" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>
 
