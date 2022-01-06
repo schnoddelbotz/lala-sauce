@@ -10,6 +10,15 @@ To fetch the whole mess in latest version, download [main.zip from GitHub](https
 
 Please improve. I cannot. Here is what you find here
 
+### [Holy Grail 2 Einsamer Black Knight Riding Hood In Tights](https://soundcloud.com/schnoddelbotz/holy-grail-2-einsamer-black-knight-riding-hood-in-tights)
+
+Files not here [Einsamer Hirte Comeback Georg](https://github.com/schnoddelbotz/lala-sauce/tree/main/Einsamer+Hirte+Comeback+Georg)?
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1191260719&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/schnoddelbotz" title="schnoddelbotz" target="_blank" style="color: #cccccc; text-decoration: none;">schnoddelbotz</a> · <a href="https://soundcloud.com/schnoddelbotz/holy-grail-2-einsamer-black-knight-riding-hood-in-tights" title="Holy Grail 2 Einsamer Black Knight Riding Hood In Tights" target="_blank" style="color: #cccccc; text-decoration: none;">Holy Grail 2 Einsamer Black Knight Riding Hood In Tights</a></div>
+
+If you like the tune, please understand it as a tribute to Mr. #KnightRider #BayWatch #WiederVereinigung [Sir David Hasselhoff](https://davidhasselhoffonline.com/).
+Otherwise, please delete it now.
+
 
 ### [Holy Grail 2 SECRET Intro   HD 1080p #HolyGrail2 #MontyPython #EXCLUSIVE](https://youtu.be/60QV4bJTJ34) via @YouTube
 
